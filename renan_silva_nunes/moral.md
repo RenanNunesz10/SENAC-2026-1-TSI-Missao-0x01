@@ -1,0 +1,1 @@
+A dependência cega da tecnologia destrói nossa capacidade de pensar e questionar.
